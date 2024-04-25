@@ -1,1 +1,1 @@
-OI. Estou começando a usar o GitHub. Estou empolgada para aaprender mais e mais!
+Olá. Estou começando a usar o GitHub. Estou empolgada para aprender mais e mais!
